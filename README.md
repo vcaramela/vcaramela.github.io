@@ -4,7 +4,7 @@
 ## Here you will see the artists I listen to! :)
 ---
 # **[TAYLOR SWIFT](https://open.spotify.com/artist/06HL4z0CvFAxyc27GXpf02?si=CBE3_BKVSimDTJnWcgWEsw)**
-![](https://media.pitchfork.com/photos/5f1e2abad421092dd8f6c7ca/1:1/w_320,c_limit/Taylor_Swift_folklore.jpeg)
+![](https://i.pinimg.com/564x/f8/7d/83/f87d837a4ccdd02e312eae8c654822d8.jpg)
 
 ---
 # [**BEN&BEN**](https://open.spotify.com/artist/4DAcJXcjX0zlQAZAPAx4Zb?si=2iCy11ZGSTm-v7nZ1KFkwA)

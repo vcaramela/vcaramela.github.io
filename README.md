@@ -4,5 +4,5 @@
 ## Here you will see the artists I listen to! :)
 ---
 # **[TAYLOR SWIFT](https://open.spotify.com/artist/06HL4z0CvFAxyc27GXpf02?si=CBE3_BKVSimDTJnWcgWEsw)**
-![alt text](https://media.pitchfork.com/photos/5f1e2abad421092dd8f6c7ca/1:1/w_320,c_limit/Taylor_Swift_folklore.jpeg)
+![Folklore is one of my favorite album. I really feel a special connection with the songs that are included here.](https://media.pitchfork.com/photos/5f1e2abad421092dd8f6c7ca/1:1/w_320,c_limit/Taylor_Swift_folklore.jpeg)
 ---

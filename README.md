@@ -20,4 +20,4 @@
 
 
 #### That is all. Thank you for visiting my website ! :D
-#### Always remember to ==**Give Love and Love Well**==.
+#### Always remember to **Give Love and Love Well**.

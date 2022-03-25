@@ -3,7 +3,7 @@
 
 ## Here you will see the artists I listen to! :)
 ---
-# [**TAYLORSWIFT**](https://open.spotify.com/artist/06HL4z0CvFAxyc27GXpf02?si=CBE3_BKVSimDTJnWcgWEsw)**
+# [**TAYLOR SWIFT**](https://open.spotify.com/artist/06HL4z0CvFAxyc27GXpf02?si=CBE3_BKVSimDTJnWcgWEsw)**
 ![](https://media.pitchfork.com/photos/5f1e2abad421092dd8f6c7ca/1:1/w_320,c_limit/Taylor_Swift_folklore.jpeg)
 
 ---
@@ -19,5 +19,5 @@
 ![](https://i.pinimg.com/originals/bc/fc/96/bcfc96f42c05376e18cf8fce2ecf40c4.jpg)
 
 
-### That is all. Thank you for visiting my website ! :D
-### Always remember to **Give Love and Love Well**.
+#### That is all. Thank you for visiting my website ! :D
+#### Always remember to **Give Love and Love Well**.
